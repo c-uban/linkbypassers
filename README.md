@@ -2,7 +2,8 @@
 not all social links work w em
 
 
-https://bypass.vip/
+https://bypass.vip/ [Broken]
 https://thebypasser.com/
 https://bypasslinkvertise.com/
-bypass.vip is #1
+https://bypass.city
+
